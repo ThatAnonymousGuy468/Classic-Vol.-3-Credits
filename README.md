@@ -252,7 +252,7 @@ Hairy Deathclaw: https://www.nexusmods.com/newvegas/mods/83989
 
 Schrodinger’s Cat: https://en.wikipedia.org/wiki/Schr%C3%B6dinger%27s_cat
 
-No Mutants Allowed: 
+No Mutants Allowed: https://www.nma-fallout.com/
 
 Dogmeat: https://www.reddit.com/r/Fallout/comments/1wax9u/i_finally_finished_fallout_with_dogmeat_alive/
 
@@ -266,7 +266,7 @@ Slenderman: https://www.creepypasta.com/slenderman/
 
 Numbers Station: https://falloutmyths.fandom.com/wiki/Numbers_Station?file=NumbersStationCopypasta.jpg
 
-Lone Wolf Radio:
+Lone Wolf Radio: https://www.reddit.com/r/creepygaming/comments/uc3jkc/fonv_lone_wolf_radio_legend_of_the_lone_wolf/
 
 Tails Doll: https://leedzie.wordpress.com/2014/10/31/halloween-special-playing-with-dolls/
 
