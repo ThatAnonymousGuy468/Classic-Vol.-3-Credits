@@ -292,6 +292,10 @@ Sony Walkman: https://www.augustman.com/my/gear/tech/the-sony-walkman-is-40-year
 
 Nintendo Gameboy: https://www.etsy.com/in-en/listing/258812885/vintage-original-nintendo-gameboy
 
+Face: https://fallout.fandom.com/wiki/Fallout_and_Fallout_2_posters
+
+TOOL: https://www.youtube.com/shorts/dp4QJo1w2UE
+
 Comments: https://www.reddit.com/user/Educational_Wave_786/comments/
 
 Face: https://fallout.fandom.com/wiki/Art_deco_sculptures?file=Redding_Faces.png
